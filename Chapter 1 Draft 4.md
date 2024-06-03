@@ -102,10 +102,10 @@ As he rushed into his house. The air was thick with the stench of smoke and bloo
 
 But now, instead of the warmth of home and family, there was only sorrow and loss. Two raiders lay dead at Eldric’s feet. Eldric’s normally stoic demeanor was shattered. Tears streaming down his weathered face as he gazed upon the lifeless bodies of Madoc’s family.
 
-Madoc’s heart wrenched in his chest as he took in the sight before him. The weight of grief pressed down on him like a leaden cloak. His sword slipped from his fingers, clattering to the ground next to where Eldric had dropped his moments before. He sunk to his knees beside his friend.
+Madoc’s heart wrenched in his chest as he took in the sight before him. The weight of grief pressed down on him like a leaden cloak. His sword slipped from his fingers, clattering to the ground next to where Eldric had dropped his moments before.
 
 Madoc reached out, laying a hand on Eldric’s shoulder, offering what little comfort he could. Together, they mourned their loss. Their tears mingled with the ashes of their shattered dreams.
 
-At that moment, as they knelt side by side, Madoc realized that nothing would ever be the same again. The innocence of his childhood had been stripped away. It was replaced by the harsh reality of a world torn apart by violence and cruelty.
+At that moment Madoc realized that nothing would ever be the same again. The innocence of his childhood had been stripped away. It was replaced by the harsh reality of a world torn apart by violence and cruelty.
 
 The flames continued to rage outside, casting their long shadows across the landscape. Madoc and Eldric clung to each other, drawing strength from their shared bond. In the darkness, they found solace in the light of their friendship.
